@@ -15,8 +15,7 @@ Video Demo link:-
 https://www.youtube.com/watch?v=B-HP6yk_Ips
 
 
-
-![1](https://user-images.githubusercontent.com/84145371/226899489-692b0c4f-9370-4422-9fdb-f27756fa8616.jpg)
+![1](https://user-images.githubusercontent.com/84145371/226921505-0e240fc1-10b8-44bb-a7f5-b3bccfe691ce.jpg)
 
 ![2](https://user-images.githubusercontent.com/84145371/226899554-15dbab1e-1ea3-4a63-8a3a-1a94328d1fc4.jpg)
 
@@ -36,4 +35,5 @@ https://www.youtube.com/watch?v=B-HP6yk_Ips
 
 ![10](https://user-images.githubusercontent.com/84145371/226900070-f6a76a4e-5d4b-4590-a037-8541ad114de3.jpg)
 
-![11](https://user-images.githubusercontent.com/84145371/226900099-e579093d-accc-49b0-ad38-1b0577af4b4e.jpg)
+![11](https://user-images.githubusercontent.com/84145371/226921772-63a7aecf-4d30-4984-97e1-41e2ba311b1c.jpg)
+
