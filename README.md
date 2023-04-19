@@ -14,7 +14,16 @@ Video Demo link:-
 
 https://www.youtube.com/watch?v=B-HP6yk_Ips
 
-IBM Internship Certification :-
+<< IBM Remote Internship Confirmation Letter >>
+
+https://drive.google.com/file/d/1zjczftdsL8kxPe2sPY_Th3lDzhTla0wd/view?usp=sharing
+
+
+![Intern letter](https://user-images.githubusercontent.com/84145371/233015019-477d4926-88b3-4e1f-a42e-63f726bd5d8c.jpg)
+
+
+<< IBM Internship Certification :- >>
+
 
 https://drive.google.com/file/d/1VtR3UqepJOkYKhIXzjL2K6zHEJRFVKIp/view
 
