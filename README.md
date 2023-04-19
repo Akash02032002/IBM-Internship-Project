@@ -19,7 +19,13 @@ IBM Internship Certification :-
 https://drive.google.com/file/d/1VtR3UqepJOkYKhIXzjL2K6zHEJRFVKIp/view
 
 
-[AICTE B4 Certificates-98 IBM.pdf](https://github.com/Akash02032002/IBM-Internship-Project/files/11269696/AICTE.B4.Certificates-98.IBM.pdf)
+[AICTE B4 Certificates-98 IBM.pdf](https://github.com/Akash02032002/IBM-Internship-<img width="569" alt="Screenshot 2023-04-19 123934" src="https://user-images.githubusercontent.com/84145371/232995508-14ae5f80-7436-479c-8387-cb34b800e46d.png">
+
+
+Project/files/11269696/AICTE.B4.Certificates-98.IBM.pdf)
+
+
+<img width="569" alt="Screenshot 2023-04-19 123934" src="https://user-images.githubusercontent.com/84145371/232996618-953a9e5a-04af-4d1e-a904-e3266ab4de6d.png">
 
 
 ![1](https://user-images.githubusercontent.com/84145371/226921505-0e240fc1-10b8-44bb-a7f5-b3bccfe691ce.jpg)
